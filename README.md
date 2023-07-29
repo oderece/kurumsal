@@ -1,2 +1,0 @@
-# kurumsal
- kurumsal
